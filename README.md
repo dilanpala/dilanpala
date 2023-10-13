@@ -1,6 +1,6 @@
 👋 Hi, I'm Dilan Pala
 
-🌐 Foreign Trade and Purchasing Manager at 4D Sistem Tic. A.S. | Ankara - 2022
+🌐 Foreign Trade and Purchasing Manager at 4D Sistem Tic. A.S. | Ankara - 2022 
 🎵 Sofar Sounds Ankara - Curator | 2022
 🌍 Foreign Trade and Marketing Specialist at 4D Sistem Company, Ankara - 2016
 📚 Organization Coordinator at Ata Education Consultancy and Organization, Ankara - 2015
